@@ -1,0 +1,1 @@
+More than 3000 years ago children played with circular hoops made with grape vines. This toy was swung around the waist. Years later this toy was made by company called Wham-O and the Hula-Hoop was invented in 1958
