@@ -1,0 +1,1 @@
+The game of squash originated in the United Kingdom. It came about after a few boys, who were waiting for their turn to play racquets, knocked a ball around in a confined area adjoining the racquets court
